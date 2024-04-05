@@ -1,1 +1,0 @@
-# namuvv.github.io
